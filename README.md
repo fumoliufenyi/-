@@ -8,4 +8,5 @@
 
 [附魔六分仪](http://tieba.baidu.com/home/main?un=%E9%99%84%E9%AD%94%E5%85%AD%E5%88%86%E4%BB%AA&ie=utf-8&fr=frs&red_tag=w0703320605)
 >毛泽东选集
+
 坚持~~改革开放~~继续革命不动摇
